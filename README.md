@@ -1,3 +1,3 @@
-ola bem vindo no meu perfil 
+ola bem vindo ao meu perfil 
 
 meu nome e isadora da silva figueira 
